@@ -1,2 +1,3 @@
 # CSXOS
-![w11](https://github.com/user-attachments/assets/28080e72-64fb-4650-9a66-d9b668afe40e)
+
+![windows-11-logo-hero-1200x675](https://github.com/user-attachments/assets/15dd2501-bd3b-4bc3-9f1e-8512ad700d45)
